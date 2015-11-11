@@ -1,0 +1,1 @@
+El objetivo de esta red social, es el de integrar las familias del Peru, de manera que participen en actividades campestres, en los diferentes clubes del Peru, organizadas por nosotros, en donde se resalte la convivencia, participacion, y sobre todo que las familias tengan un dia involvidable y se animen a participar de nuevo en este tipo de actividades.
